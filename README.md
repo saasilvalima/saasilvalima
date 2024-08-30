@@ -1,4 +1,4 @@
-## Oi, eu sou a sabrina  💗
+## Oi, eu sou a Sabrina  💗
 Eu sou estudante da escola josé marcelino 
 Meu principal objetivo no github é estudar as aulas do alura 
 
